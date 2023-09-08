@@ -1,0 +1,17 @@
+- 👋 Hi, I’m @MEIR-0-tpg (it's MEIR_tpg but, Usernames can't contain "_" so i chose "-0-" instead.)
+- 👀 I’m interested in Scratch HTML/CSS/JS and Tools/Hacks/Games for School-Chromebooks.
+- 💞️ I’m looking to collaborate on Tools/Hacks/Games for School-Chromebooks.
+- im 15, and used School-Chromebooks.
+- my homeschool blocked EVERYTHING,
+- only leaving their websites.
+- i didn't know it yet but i was gonna outsmart them!
+- Firstly i wanted Minecraft (duh.), then i wanted Youtube, Then i just wanted the browser to work...
+- and i got them all, but backwards. browser first then youtube etc.
+- oh, and i added games on there too.
+- when my school found out (it was my fault, i shouldn't have told my other classmates about it on supervised chats, lol)
+- they just simply unblocked my Chromebook. yup. guess they saw i was just too powerful.
+- i know, sad, what am i gonna do with this project now?
+- my Chromebook is unblocked. so here i am giving it to the internet.
+- also you can Remix it but mention me plz.
+- i'd like to see what projects youv'e come up with.
+- 
